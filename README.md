@@ -9,10 +9,10 @@
 Damilare Abolaji (bolajidamilaresunday@gmail.com)
 
 **TEAM MEMBERS:**
-Akolade Wahab (wahabakolade@gmail.com)
-Damilola Precious (damilolaprecious50@gmail.com)
-Icepeak B (Icepeakb@gmail.com)
-Michael Odonghanro (michaelodonghanro287@gmail.com)
+Akolade Wahab (wahabakolade@gmail.com),
+Damilola Precious (damilolaprecious50@gmail.com),
+Icepeak B (Icepeakb@gmail.com),
+Michael Odonghanro (michaelodonghanro287@gmail.com),
 Edosoma Patrick (Edosomapatrick41@gmail.com)
 
 **PROJECT IDEAS:**
