@@ -13,6 +13,7 @@ Akolade Wahab (wahabakolade@gmail.com)
 Damilola Precious (damilolaprecious50@gmail.com)
 Icepeak B (Icepeakb@gmail.com)
 Michael Odonghanro (michaelodonghanro287@gmail.com)
+Edosoma Patrick (Edosomapatrick41@gmail.com)
 
 **PROJECT IDEAS:**
 ML to tailor resume for Jobs and distinguish from AI Generated resumes
